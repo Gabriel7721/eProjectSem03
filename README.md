@@ -13,11 +13,11 @@ JamesThewDOTcom
 
 =======================================
 
-Link: https://github.com/Quan2808/KarnelTravel
+Link: https://github.com/Gabriel7721/eProjectSem03
 
 =======================================
 
-Mirror: https://by.tn/BJ9R
+Mirror: https://shorturl.at/dQSX0
 
 =======================================
 
